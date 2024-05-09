@@ -1,1 +1,1 @@
-# Aqui terá descrição do projeto... Aguarde ⏳
+# Aqui terá descrição do projeto. Aguarde... ⏳
