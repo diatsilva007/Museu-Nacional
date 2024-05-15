@@ -1,5 +1,3 @@
 # 📁 Projeto finalizado ✅
 
-## ➡️ Descrição do projeto. Aguarde... ⏳
-
-
+## ⬇️ Descrição do projeto. Aguarde... ⏳
